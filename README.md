@@ -1,0 +1,2 @@
+# LP7510e_duplicate_Display
+shalima LP7510e_duplicate_Display
